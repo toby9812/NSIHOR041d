@@ -1,1 +1,12 @@
-# NSIHOR041d
+# NSIHOR041d 濾能
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/27dc7fa5-27fa-4588-9724-d3db89d670de)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/26e66fa4-a443-47cc-b190-99bc26638ab9)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/c23e9a5d-f8c9-48fc-b082-f24b689e98c9)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/e8f524b1-f226-4009-8cf0-a24dfc08747d)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/92348020-52d3-496c-8c1b-4a30c249cab6)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/b2a26ed8-1b5f-48c5-970c-c3822c320703)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/f0f0b207-acaf-4140-90d7-15a861f50ca4)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/b3588251-1caa-4aac-afea-39e76e4b5a5e)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/b8e6a6b5-a17f-4b99-8005-d3be385c31e5)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/74be84c4-4844-413b-878c-ce37296d4c6b)
+![image](https://github.com/toby9812/NSIHOR041d/assets/161737346/d91b5330-a79b-4772-815f-9f08eb9f3b29)
